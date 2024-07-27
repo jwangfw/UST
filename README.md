@@ -1,0 +1,1 @@
+The data that support the findings of study 'Local swelling effect of flexible entangled polymer chains in athermal solvents' are available from the corresponding author upon reasonable request, by sending email to: jwangfw@connect.ust.hk
